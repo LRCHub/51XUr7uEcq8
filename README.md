@@ -1,0 +1,48 @@
+# Sonny Zero – oxygen
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+The way my heart beats when I'm thinking of you
+I'm kinda lovesick, my fever's out of control
+From a distance, could pick you out of the view
+Don't say nothing, let's sit in silence a few
+I feel you hands tighten around me
+I let it happen, I'm surrounded
+Intoxicated by you, I'm drunk off just a taste
+Oh, I fade into you, I feel your influence (Ooh)
+Something, something
+Is in the air, I'm choking up, oh
+In my lungs, lungs
+My chest tightens, is it love, oh?
+One look at you, I'm choking up
+Need oxygen, give me some air, I think I'm
+running out
+Babe, babe, babe
+How was the evening?
+Was it a date, date, date?
+Intentions clearing
+Oh, fuck, I made her pay
+My pockets were empty
+And you stayed after to say
+I like you, boy, fly out to me (Oh, god)
+We looked for loose change to buy just one
+little pack
+Don't let the love fade, guess fighting's just
+part of that
+And life's what we make, so let's be stupid in
+fact
+Let's drink the day away, I wanna love you like
+that
+Something, something
+Is in the air, I'm choking up, oh
+In my lungs, lungs
+My chest tightens, is it love, oh?
+One look at you, I'm choking up
+Need oxygen, give me some air, I think I'm
+running out
+I need some oxygen
+I'm in the stratosphere, a long way down (Oh)
+I picked out your face out of the crowd
+If love is in the air, need oxygen, oh-oh-oh
+```
